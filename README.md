@@ -1,2 +1,0 @@
-# usultimur
-soon usul timur
